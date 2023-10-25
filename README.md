@@ -1,2 +1,2 @@
 # cards
-https://alexanderms00.github.io/cards/
+https://Vladislavms2002.github.io/cards/
